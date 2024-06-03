@@ -101,9 +101,9 @@ Klik Disini👉
 [Bug 0p0k Three](https://sfile.mobi/7pezDASeycJ)
 
 Jangan Lupa Like Share Comment And Subscribe
+https://www.youtube.com/@km7ujuh
 https://www.youtube.com/@pemurusdalam
 https://www.youtube.com/@hijrahmebelbanjarmasin
-https://www.youtube.com/@km7ujuh
 https://www.instagram.com/km7ujuh
 https://www.instagram.com/kiplymacho
 https://www.twitter.com/kiplymacho
