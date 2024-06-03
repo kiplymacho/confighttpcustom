@@ -1,33 +1,33 @@
 # confighttpcustom
 
-Indosat 0p0k Unlimited
+- Indosat 0p0k Unlimited
 
-Link Aplikasi:
+- Link Aplikasi:
 https://sfile.mobi/7SMATlKVVem
 
 Note:
 Pilih Metode ovpn
 
-Semua Config Ada Di Saluran WhatsApp Ini Jgn Lupa Follow:
+- Semua Config Ada Di Saluran WhatsApp Ini Jgn Lupa Follow:
 https://whatsapp.com/channel/0029VaaFkqtGU3BSf6gTnj2s
 
-Kumpulan Payload All Operator Untuk Internet Gratis:
+- Kumpulan Payload All Operator Untuk Internet Gratis:
 https://sfile.mobi/80aBinxFscu
 
-Config Axis Game Unlock SSH
-https://youtu.be/9TITdO2-UfU
-Config Telkomsel Edukasi Unlock SSH
-https://youtu.be/OQJfKepO4hU
-Config Indosat Edukasi Unlock SSH
-https://youtu.be/HBC9i9z75QA
-Config Axis Edukasi Unlock SSH
-https://youtu.be/d6chn5vTzZE
-Config XL Edukasi Unlock SSH
-https://youtu.be/ljJVO5bPtYg
-Config Sushiroll Unlock SSH
-https://youtu.be/R-rBfhBbm1M
-Config Telkomsel BYU Opok Unlock SSH
-https://youtu.be/u8Y9cLIhTLs
+[Config Axis Game Unlock SSH]
+(https://youtu.be/9TITdO2-UfU)
+[Config Telkomsel Edukasi Unlock SSH]
+(https://youtu.be/OQJfKepO4hU)
+[Config Indosat Edukasi Unlock SSH]
+(https://youtu.be/HBC9i9z75QA)
+[Config Axis Edukasi Unlock SSH]
+(https://youtu.be/d6chn5vTzZE)
+[Config XL Edukasi Unlock SSH]
+(https://youtu.be/ljJVO5bPtYg)
+[Config Sushiroll Unlock SSH]
+(https://youtu.be/R-rBfhBbm1M)
+[Config Telkomsel BYU Opok Unlock SSH]
+(https://youtu.be/u8Y9cLIhTLs)
 
 Kumpulan Bug All Operator Mei 2024
 Telkomsel 0p0k
