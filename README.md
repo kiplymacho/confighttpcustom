@@ -135,10 +135,10 @@ Klik Disini👉
 <img height=150 src="https://github-readme-stats.vercel.app/api?username=kiplymacho&count_private=true&show_icons=true&theme=dark">
 <h2 align="center">
 
-- Bila masih bingung bisa di tanyakan 
+# ~_Follow_~
 - [Facebook](https://www.facebook.com/httpcustomkiplymacho/)
 - [WhatsApp](https://wa.me/6285751032225)
 
-# _Follow_
+# ~_Subscribe_~
 - Klik Disini 👉[YouTube](https://www.youtube.com/@km7ujuh)
 - Klik Disini👉[instagram](https://instagram.com/kiplymacho)
