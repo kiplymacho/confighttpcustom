@@ -102,7 +102,8 @@ Klik Disini👉
 
 # Jangan Lupa Like Share Comment And Subscribe
 - https://www.youtube.com/@km7ujuh
-- https://www.youtube.com/@pemurusdalam - https://www.youtube.com/@hijrahmebelbanjarmasin
+- https://www.youtube.com/@pemurusdalam
+- https://www.youtube.com/@hijrahmebelbanjarmasin
 - https://www.instagram.com/km7ujuh
 - https://www.instagram.com/kiplymacho
 - https://www.twitter.com/kiplymacho
@@ -119,6 +120,7 @@ Klik Disini👉
 - https://sck.io/f/Djdro91o
 - https://www.olx.co.id/profile/116782022
 - https://www.snackvideo.com/@ananggonjeng2023
+- https://www.youtube.com/@hijrahmebelbanjarmasin
 
 </p>
 <div height='45' align="center">
