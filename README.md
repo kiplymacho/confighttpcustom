@@ -6,7 +6,7 @@ Note:
 Pilih Metode ovpn
 
 # Semua Config Ada Di Saluran WhatsApp Ini Jgn Lupa Follow:
-[WhatsApp Channel](https://whatsapp.com/channel/0029VaaFkqtGU3BSf6gTnj2s)
+- [WhatsApp Channel](https://whatsapp.com/channel/0029VaaFkqtGU3BSf6gTnj2s)
 
 - Kumpulan Payload All Operator Untuk Internet Gratis:
 Klik Disini👉
