@@ -120,7 +120,6 @@ Klik Disini👉
 - https://sck.io/f/Djdro91o
 - https://www.olx.co.id/profile/116782022
 - https://www.snackvideo.com/@ananggonjeng2023
-- https://www.youtube.com/@hijrahmebelbanjarmasin
 
 </p>
 <div height='45' align="center">
