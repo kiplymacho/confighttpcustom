@@ -36,8 +36,7 @@ Klik Disini👉
 # Kumpulan Bug All Operator Mei 2024
 
 Klik Disini👉
-[Telkomsel 0p0k]
-(https://sfile.mobi/bsoBOcDQqs7)
+[Telkomsel 0p0k](https://sfile.mobi/bsoBOcDQqs7)
 
 Klik Disini👉
 [Bug Telkomsel iLmuPedia](https://sfile.mobi/1zgwntqWziZ)
