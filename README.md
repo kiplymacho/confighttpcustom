@@ -101,25 +101,25 @@ Klik Disini👉
 [Bug 0p0k Three](https://sfile.mobi/7pezDASeycJ)
 
 # Jangan Lupa Like Share Comment And Subscribe
-https://www.youtube.com/@km7ujuh
-https://www.youtube.com/@pemurusdalam
-https://www.youtube.com/@hijrahmebelbanjarmasin
-https://www.instagram.com/km7ujuh
-https://www.instagram.com/kiplymacho
-https://www.twitter.com/kiplymacho
-https://www.tiktok.com/@kiplymacho
-https://www.facebook.com/kiplymachobanjar
-https://www.linkedin.com/in/kiplymacho
-https://www.facebook.com/httpcustomkiplymacho
-https://www.facebook.com/profile.php?id=100063772334951
-https://www.facebook.com/profile.php?id=100088881661437
-https://www.clickasnap.com/kiplymacho
-https://github.com/kiplymacho
-http://t.me/kiplymacho
-https://linktr.ee/kiplymacho
-https://sck.io/f/Djdro91o
-https://www.olx.co.id/profile/116782022
-https://www.snackvideo.com/@ananggonjeng2023
+- https://www.youtube.com/@km7ujuh
+- https://www.youtube.com/@pemurusdalam
+-https://www.youtube.com/@hijrahmebelbanjarmasin
+- https://www.instagram.com/km7ujuh
+- https://www.instagram.com/kiplymacho
+- https://www.twitter.com/kiplymacho
+- https://www.tiktok.com/@kiplymacho
+- https://www.facebook.com/kiplymachobanjar
+- https://www.linkedin.com/in/kiplymacho
+- https://www.facebook.com/httpcustomkiplymacho
+- https://www.facebook.com/profile.php?id=100063772334951
+- https://www.facebook.com/profile.php?id=100088881661437
+- https://www.clickasnap.com/kiplymacho
+- https://github.com/kiplymacho
+- http://t.me/kiplymacho
+- https://linktr.ee/kiplymacho
+- https://sck.io/f/Djdro91o
+- https://www.olx.co.id/profile/116782022
+- https://www.snackvideo.com/@ananggonjeng2023
 
 </p>
 <div height='45' align="center">
