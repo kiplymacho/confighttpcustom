@@ -14,16 +14,22 @@ Pilih Metode ovpn
 
 Klik Disini👉
 [Config Axis Game Unlock SSH](https://youtu.be/9TITdO2-UfU)
+
 Klik Disini👉
 [Config Telkomsel Edukasi Unlock SSH](https://youtu.be/OQJfKepO4hU)
+
 Klik Disini👉
 [Config Indosat Edukasi Unlock SSH](https://youtu.be/HBC9i9z75QA)
+
 Klik Disini👉
 [Config Axis Edukasi Unlock SSH](https://youtu.be/d6chn5vTzZE)
+
 Klik Disini👉
 [Config XL Edukasi Unlock SSH](https://youtu.be/ljJVO5bPtYg)
+
 Klik Disini👉
 [Config Sushiroll Unlock SSH](https://youtu.be/R-rBfhBbm1M)
+
 Klik Disini👉
 [Config Telkomsel BYU Opok Unlock SSH](https://youtu.be/u8Y9cLIhTLs)
 
@@ -32,36 +38,52 @@ Klik Disini👉
 Klik Disini👉
 [Telkomsel 0p0k]
 (https://sfile.mobi/bsoBOcDQqs7)
+
 Klik Disini👉
 [Bug Telkomsel iLmuPedia](https://sfile.mobi/1zgwntqWziZ)
+
 Klik Disini👉
 [Bug Telkomsel Game](https://sfile.mobi/aK4BrQxzTaX)
+
 Klik Disini👉
 [Bug XL YouTube](https://sfile.mobi/5CqyCF0fXqN)
+
 Klik Disini👉
 [Bug XL Vision](https://sfile.mobi/4MIyahZ5Uc9)
+
 Klik Disini👉
 [Bug XL Flex](https://sfile.mobi/6zwz9Ox0EEE)
+
 Klik Disini👉
 [Bug Axis 0p0k](https://sfile.mobi/9UmB4A4oiQD)
+
 Klik Disini👉
 [Bug Axis Game](https://sfile.mobi/87yA4aWGEoD)
+
 Klik Disini👉
 [Bug Axis XL WhatsApp](https://sfile.mobi/3tsxrXpcWsI)
+
 Klik Disini👉
 [Bug Axis XL Video](https://sfile.mobi/9FAASyeBgII)
+
 Klik Disini👉
 [Bug Axis Sosmed](https://sfile.mobi/2oYwS8lXnqh)
+
 Klik Disini👉
 [Bug Axis Sushiroll](https://sfile.mobi/734zt7u8daF)
+
 Klik Disini👉
 [Bug Axis Music](https://sfile.mobi/aCGBqAl8S4r)
+
 Klik Disini👉
 [Bug Axis XL Conference](https://sfile.mobi/7hQzAKqYHCw)
+
 Klik Disini👉
 [Bug Axis Genflix](https://sfile.mobi/8tIAfSK5R6g)
+
 Klik Disini👉
 [Bug Indosat 0p0k Unlimited](https://sfile.mobi/4qym6uHsreO)
+
 Klik Disini👉
 [Bug 0p0k Three](https://sfile.mobi/7pezDASeycJ)
 
