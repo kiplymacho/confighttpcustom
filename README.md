@@ -22,11 +22,12 @@ Pilih Metode ovpn
 
 # Semua Config Ada Di Saluran WhatsApp Ini Jgn Lupa Follow:
 <h2 align="center">
- - [WhatsApp Channel](https://whatsapp.com/channel/0029VaaFkqtGU3BSf6gTnj2s)
+ 
+[![WhatsApp Channel](https://img.shields.io/badge/WhatsAppChannel-400%2B-yellow.svg?style=flat)](https://whatsapp.com/channel/0029VaaFkqtGU3BSf6gTnj2s)
 
 # Kumpulan Payload All Operator Untuk Internet Gratis:
 Klik Disini👉
-[payload](https://sfile.mobi/80aBinxFscu)
+[![Payload](https://img.shields.io/badge/Payload-7%2B-yellow.svg?style=flat)](https://sfile.mobi/80aBinxFscu)
 
 # Kumpulan Config Unlock SSH
 
