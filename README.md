@@ -39,22 +39,22 @@ Klik Disini👉
 [![Config Axis Game](https://img.shields.io/badge/ConfigAxisGame-7%2B-blue.svg?style=flat)](https://youtu.be/9TITdO2-UfU)
 
 Klik Disini👉
-[Config Telkomsel Edukasi Unlock SSH](https://youtu.be/OQJfKepO4hU)
+[![Config Telkomsel Edukasi Unlock SSH](https://img.shields.io/badge/ConfigTelkomselEdukasiUnlockSSH-9%2B-blue.svg?style=flat)](https://youtu.be/OQJfKepO4hU)
 
 Klik Disini👉
-[Config Indosat Edukasi Unlock SSH](https://youtu.be/HBC9i9z75QA)
+[![Config Indosat Edukasi Unlock SSH](https://img.shields.io/badge/ConfigIndosatEdukasiUnlockSSH-11%2B-blue.svg?style=flat)](https://youtu.be/HBC9i9z75QA)
 
 Klik Disini👉
-[Config Axis Edukasi Unlock SSH](https://youtu.be/d6chn5vTzZE)
+[![Config Axis Edukasi Unlock SSH](https://img.shields.io/badge/ConfigAxisEdukasiUnlockSSH-17%2B-blue.svg?style=flat)](https://youtu.be/d6chn5vTzZE)
 
 Klik Disini👉
-[Config XL Edukasi Unlock SSH](https://youtu.be/ljJVO5bPtYg)
+[![Config XL Edukasi Unlock SSH](https://img.shields.io/badge/ConfigXLEdukasiUnlockSSH-33%2B-blue.svg?style=flat)](https://youtu.be/ljJVO5bPtYg)
 
 Klik Disini👉
-[Config Sushiroll Unlock SSH](https://youtu.be/R-rBfhBbm1M)
+[![Config Sushiroll Unlock SSH](https://img.shields.io/badge/ConfigSushirollUnlockSSH-15%2B-blue.svg?style=flat)](https://youtu.be/R-rBfhBbm1M)
 
 Klik Disini👉
-[Config Telkomsel BYU Opok Unlock SSH](https://youtu.be/u8Y9cLIhTLs)
+[![Config Telkomsel BYU Opok Unlock SSH](https://img.shields.io/badge/ConfigTelkomselByuOpokUnlockSSH-9%2B-blue.svg?style=flat)](https://youtu.be/u8Y9cLIhTLs)
 
 # Kumpulan Bug All Operator Mei 2024
 
