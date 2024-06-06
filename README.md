@@ -154,7 +154,7 @@ Klik Disini👉
 
 [![SnackVideo](https://img.shields.io/badge/SnackVideo-800%2B-yellow.svg?style=flat)](https://www.snackvideo.com/@ananggonjeng2023)
 
-[![LinkedIn KiplyMacho](https://img.shields.io/badge/LinkedIn KiplyMacho-135%2B-yellow.svg?style=flat)](https://www.linkedin.com/in/kiplymacho)
+[![LinkedIn](https://img.shields.io/badge/LinkedIn-80%2B-yellow.svg?style=flat)](http://www.linkedin.com/in/kiplymacho)
 
 </p>
 <div height='45' align="center">
