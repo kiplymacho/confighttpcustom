@@ -9,8 +9,7 @@
 <p align='center'><a href="https://api.daily.dev/get?r=fisabiliyusri"><img src="https://raw.githubusercontent.com/fisabiliyusri/.github/main/kotori2.png?r=82s" width="150" alt="Hayuk"/></a></p>
 
 <h2 align="center">
-Powered By kiplymacho
-<img src="https://img.shields.io/badge/Version-1.0.0-blue.svg"></h2>
+[![Powered By:kiplymacho](https://img.shields.io/badge/PoweredBy:kiplymacho-7%2B-blue.svg?style=flat)](http://linktr.ee/kiplymacho)
 
 # confighttpcustom
 
