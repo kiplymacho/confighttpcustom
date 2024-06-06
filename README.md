@@ -65,55 +65,55 @@ Klik Disini👉[![Config Telkomsel BYU Opok Unlock SSH](https://img.shields.io/b
 # Kumpulan Bug All Operator Mei 2024
 
 Klik Disini👉
-[Telkomsel 0p0k](https://sfile.mobi/bsoBOcDQqs7)
+[![Bug Telkomsel 0p0k](https://img.shields.io/badge/BugTelkomsel0p0k-11%2B-yellow.svg?style=flat)](https://sfile.mobi/bsoBOcDQqs7)
 
 Klik Disini👉
-[Bug Telkomsel iLmuPedia](https://sfile.mobi/1zgwntqWziZ)
+[![Bug Telkomsel iLmuPedia](https://img.shields.io/badge/BugTelkomseliLmuOedia-13%2B-yellow.svg?style=flat)](https://sfile.mobi/1zgwntqWziZ)
 
 Klik Disini👉
-[Bug Telkomsel Game](https://sfile.mobi/aK4BrQxzTaX)
+[![Bug Telkomsel Game](https://img.shields.io/badge/BugTelkomselGame-17%2B-yellow.svg?style=flat)](https://sfile.mobi/aK4BrQxzTaX)
 
 Klik Disini👉
-[Bug XL YouTube](https://sfile.mobi/5CqyCF0fXqN)
+[![Bug XL YouTube](https://img.shields.io/badge/BugXLYouTube-15%2B-yellow.svg?style=flat)](https://sfile.mobi/5CqyCF0fXqN)
 
 Klik Disini👉
-[Bug XL Vision](https://sfile.mobi/4MIyahZ5Uc9)
+[![Bug XL Vision](https://img.shields.io/badge/BugXLVision-5%2B-yellow.svg?style=flat)](https://sfile.mobi/4MIyahZ5Uc9)
 
 Klik Disini👉
-[Bug XL Flex](https://sfile.mobi/6zwz9Ox0EEE)
+[![Bug XL Flex](https://img.shields.io/badge/BugXLFlex-3%2B-yellow.svg?style=flat)](https://sfile.mobi/6zwz9Ox0EEE)
 
 Klik Disini👉
-[Bug Axis 0p0k](https://sfile.mobi/9UmB4A4oiQD)
+[![Bug Axis 0p0k](https://img.shields.io/badge/BugAxis0p0k-5%2B-yellow.svg?style=flat)](https://sfile.mobi/9UmB4A4oiQD)
 
 Klik Disini👉
-[Bug Axis Game](https://sfile.mobi/87yA4aWGEoD)
+[![Bug Axis Game](https://img.shields.io/badge/BugAxisGame-17%2B-yellow.svg?style=flat)](https://sfile.mobi/87yA4aWGEoD)
 
 Klik Disini👉
-[Bug Axis XL WhatsApp](https://sfile.mobi/3tsxrXpcWsI)
+[![Bug Axis XL WhatsApp](https://img.shields.io/badge/BugAxisXLWhatsApp-3%2B-yellow.svg?style=flat)](https://sfile.mobi/3tsxrXpcWsI)
 
 Klik Disini👉
-[Bug Axis XL Video](https://sfile.mobi/9FAASyeBgII)
+[![Bug Axis XL Video](https://img.shields.io/badge/BugAxisXLVideo-2%2B-yellow.svg?style=flat)](https://sfile.mobi/9FAASyeBgII)
 
 Klik Disini👉
-[Bug Axis Sosmed](https://sfile.mobi/2oYwS8lXnqh)
+[![Bug Axis Sosmed](https://img.shields.io/badge/BugAxisSosmed-1%2B-yellow.svg?style=flat)](https://sfile.mobi/2oYwS8lXnqh)
 
 Klik Disini👉
-[Bug Axis Sushiroll](https://sfile.mobi/734zt7u8daF)
+[![Bug Axis Sushiroll](https://img.shields.io/badge/BugAxisSushiroll-7%2B-yellow.svg?style=flat)](https://sfile.mobi/734zt7u8daF)
 
 Klik Disini👉
-[Bug Axis Music](https://sfile.mobi/aCGBqAl8S4r)
+[![Bug Axis Music](https://img.shields.io/badge/BugAxisMusic-3%2B-yellow.svg?style=flat)](https://sfile.mobi/aCGBqAl8S4r)
 
 Klik Disini👉
-[Bug Axis XL Conference](https://sfile.mobi/7hQzAKqYHCw)
+[![Bug Axis XL Conference](https://img.shields.io/badge/BugAxisXLConference-1%2B-yellow.svg?style=flat)](https://sfile.mobi/7hQzAKqYHCw)
 
 Klik Disini👉
-[Bug Axis Genflix](https://sfile.mobi/8tIAfSK5R6g)
+[![Bug Axis Genflix](https://img.shields.io/badge/BugAxisGenflix-4%2B-yellow.svg?style=flat)](https://sfile.mobi/8tIAfSK5R6g)
 
 Klik Disini👉
-[Bug Indosat 0p0k Unlimited](https://sfile.mobi/4qym6uHsreO)
+[![Bug Indosat 0p0k Unlimited](https://img.shields.io/badge/BugIndosat0p0kUnlimited-8%2B-yellow.svg?style=flat)](https://sfile.mobi/4qym6uHsreO)
 
 Klik Disini👉
-[Bug 0p0k Three](https://sfile.mobi/7pezDASeycJ)
+[![Bug 0p0k Three](https://img.shields.io/badge/Bug0p0kThree-3%2B-yellow.svg?style=flat)](https://sfile.mobi/7pezDASeycJ)
 
 # Jangan Lupa Like Share Comment And Subscribe
 - https://www.youtube.com/@km7ujuh
