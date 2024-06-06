@@ -134,8 +134,6 @@ Klik Disini👉
 
 [![Facebook KiplyMacho](https://img.shields.io/badge/FacebookKiplyMacho-199%2B-yellow.svg?style=flat)](https://www.facebook.com/kiplymachobanjar)
 
-[![LinkedIn KiplyMacho](https://img.shields.io/badge/LinkedIn KiplyMacho-135%2B-yellow.svg?style=flat)](https://www.linkedin.com/in/kiplymacho)
-
 [![Halaman Facebook](https://img.shields.io/badge/HalamanFacebook-7K%2B-yellow.svg?style=flat)](https://www.facebook.com/httpcustomkiplymacho)
   
 [![Halaman Facebook](https://img.shields.io/badge/HalamanFacebook-111%2B-yellow.svg?style=flat)](https://www.facebook.com/profile.php?id=100063772334951)
@@ -153,7 +151,10 @@ Klik Disini👉
 [![SnackVideo](https://img.shields.io/badge/SnackVideo-800%2B-yellow.svg?style=flat)](https://sck.io/f/Djdro91o)
 
 [![OLX](https://img.shields.io/badge/OLX-7%2B-yellow.svg?style=flat)](https://www.olx.co.id/profile/116782022)
-  [![SnackVideo](https://img.shields.io/badge/SnackVideo-800%2B-yellow.svg?style=flat)](https://www.snackvideo.com/@ananggonjeng2023)
+
+[![SnackVideo](https://img.shields.io/badge/SnackVideo-800%2B-yellow.svg?style=flat)](https://www.snackvideo.com/@ananggonjeng2023)
+
+[![LinkedIn KiplyMacho](https://img.shields.io/badge/LinkedIn KiplyMacho-135%2B-yellow.svg?style=flat)](https://www.linkedin.com/in/kiplymacho)
 
 </p>
 <div height='45' align="center">
