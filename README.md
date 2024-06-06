@@ -6,6 +6,8 @@
 <img src="https://readme-typing-svg.herokuapp.com?color=%2336BCF7&center=true&vCenter=true&lines=K+I+P+L+Y+M+A+C+H+O" />
 </p>
 
+<p align='center'><a href="https://api.daily.dev/get?r=fisabiliyusri"><img src="https://raw.githubusercontent.com/fisabiliyusri/.github/main/kotori2.png?r=82s" width="150" alt="Hayuk"/></a></p>
+
 <h2 align="center">
 Powered By kiplymacho
 <img src="https://img.shields.io/badge/Version-1.0.0-blue.svg"></h2>
@@ -18,6 +20,8 @@ Powered By kiplymacho
 Pilih Metode ovpn
 
 # Semua Config Ada Di Saluran WhatsApp Ini Jgn Lupa Follow:
+<h2 align="center">
+ 
 - [WhatsApp Channel](https://whatsapp.com/channel/0029VaaFkqtGU3BSf6gTnj2s)
 
 # Kumpulan Payload All Operator Untuk Internet Gratis:
