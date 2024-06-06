@@ -36,7 +36,7 @@ Klik Disini👉
 # Kumpulan Config Unlock SSH
 
 Klik Disini👉
-[Config Axis Game Unlock SSH](https://youtu.be/9TITdO2-UfU)
+[![Config Axis Game](https://img.shields.io/badge/ConfigAxisGame-7%2B-blue.svg?style=flat)](https://youtu.be/9TITdO2-UfU)
 
 Klik Disini👉
 [Config Telkomsel Edukasi Unlock SSH](https://youtu.be/OQJfKepO4hU)
