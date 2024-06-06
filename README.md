@@ -124,32 +124,36 @@ Klik Disini👉
 
 [![YouTube Hijrah Mebel Banjarmasin](https://img.shields.io/badge/YouTubeHijrahMebelBanjarmasin-6%2B-yellow.svg?style=flat)](https://www.youtube.com/@hijrahmebelbanjarmasin)
 
-[![Instagram Km7ujuh](https://img.shields.io/badge/InstagramKm7ujuh-200%2B-yellow.svg?style=flat)](https://www.instagram.com/km7ujuh)
+[![Instagram Km7ujuh](https://img.shields.io/badge/InstagramKm7ujuh-65%2B-yellow.svg?style=flat)](https://www.instagram.com/km7ujuh)
 
-[![Instagram Kiplymacho](https://www.instagram.com/kiplymacho)
+[![Instagram Kiplymacho](https://img.shields.io/badge/InstagramKiplymacho-2K%2B-yellow.svg?style=flat)](https://www.instagram.com/kiplymacho)
 
-(https://www.twitter.com/kiplymacho)
+[![Twitter KipyMacho](https://img.shields.io/badge/TwitterKiplyMacho-350%2B-yellow.svg?style=flat)](https://www.twitter.com/kiplymacho)
   
-(https://www.tiktok.com/@kiplymacho)
-  (https://www.facebook.com/kiplymachobanjar)
-  (https://www.linkedin.com/in/kiplymacho)
-  (https://www.facebook.com/httpcustomkiplymacho)
-  
-(https://www.facebook.com/profile.php?id=100063772334951)
+[![Tiktok KiplyMacho](https://img.shields.io/badge/TiktokKiplyMacho-80%2B-yellow.svg?style=flat)](https://www.tiktok.com/@kiplymacho)
 
-(https://www.facebook.com/profile.php?id=100088881661437)
-  
-(https://www.clickasnap.com/kiplymacho)
-  
-(https://github.com/kiplymacho)
+[![Facebook KiplyMacho](https://img.shields.io/badge/FacebookKiplyMacho-199%2B-yellow.svg?style=flat)](https://www.facebook.com/kiplymachobanjar)
 
-(http://t.me/kiplymacho)
+[![LinkedIn KiplyMacho](https://img.shields.io/badge/LinkedIn KiplyMacho-135%2B-yellow.svg?style=flat)](https://www.linkedin.com/in/kiplymacho)
+
+[![Halaman Facebook](https://img.shields.io/badge/HalamanFacebook-7K%2B-yellow.svg?style=flat)](https://www.facebook.com/httpcustomkiplymacho)
   
-(https://linktr.ee/kiplymacho)
+[![Halaman Facebook](https://img.shields.io/badge/HalamanFacebook-111%2B-yellow.svg?style=flat)](https://www.facebook.com/profile.php?id=100063772334951)
+
+[![Halaman Facebook](https://img.shields.io/badge/HalamanFacebook-99%2B-yellow.svg?style=flat)](https://www.facebook.com/profile.php?id=100088881661437)
   
-(https://sck.io/f/Djdro91o)
-  (https://www.olx.co.id/profile/116782022)
-  (https://www.snackvideo.com/@ananggonjeng2023)
+[![Clickasnap](https://img.shields.io/badge/Clickasnap-9%2B-yellow.svg?style=flat)](https://www.clickasnap.com/kiplymacho)
+  
+[![Github KiplyMacho](https://img.shields.io/badge/GithubKiplyMacho-7%2B-yellow.svg?style=flat)](https://github.com/kiplymacho)
+
+[![Telegram](https://img.shields.io/badge/Telegram-77%2B-yellow.svg?style=flat)](http://t.me/kiplymacho)
+  
+[![Linktr.ee](https://img.shields.io/badge/Linktr.ee-999%2B-yellow.svg?style=flat)](https://linktr.ee/kiplymacho)
+  
+[![SnackVideo](https://img.shields.io/badge/SnackVideo-800%2B-yellow.svg?style=flat)](https://sck.io/f/Djdro91o)
+
+[![OLX](https://img.shields.io/badge/OLX-7%2B-yellow.svg?style=flat)](https://www.olx.co.id/profile/116782022)
+  [![SnackVideo](https://img.shields.io/badge/SnackVideo-800%2B-yellow.svg?style=flat)](https://www.snackvideo.com/@ananggonjeng2023)
 
 </p>
 <div height='45' align="center">
@@ -166,8 +170,10 @@ Klik Disini👉
 <h2 align="center">
 
 # ~_Follow_~
-- [Facebook](https://www.facebook.com/httpcustomkiplymacho/)
-- [WhatsApp](https://wa.me/6285751032225)
+
+[![Halaman Facebook](https://img.shields.io/badge/HalamanFacebook-200%2B-yellow.svg?style=flat)](https://www.facebook.com/httpcustomkiplymacho/)
+
+[![WhatsApp](https://img.shields.io/badge/WhatsApp-400%2B-yellow.svg?style=flat)](https://wa.me/6285751032225)
 
 # ~_Subscribe_~
 - Klik Disini 👉[YouTube](https://www.youtube.com/@km7ujuh)
