@@ -53,8 +53,7 @@ Klik Disini👉
 Klik Disini👉
 [![Config Sushiroll Unlock SSH](https://img.shields.io/badge/ConfigSushirollUnlockSSH-15%2B-blue.svg?style=flat)](https://youtu.be/R-rBfhBbm1M)
 
-Klik Disini👉
-[![Config Telkomsel BYU Opok Unlock SSH](https://img.shields.io/badge/ConfigTelkomselByuOpokUnlockSSH-9%2B-blue.svg?style=flat)](https://youtu.be/u8Y9cLIhTLs)
+Klik Disini👉[![Config Telkomsel BYU Opok Unlock SSH](https://img.shields.io/badge/ConfigTelkomselByuOpokUnlockSSH-9%2B-blue.svg?style=flat)](https://youtu.be/u8Y9cLIhTLs)
 
 # Kumpulan Bug All Operator Mei 2024
 
