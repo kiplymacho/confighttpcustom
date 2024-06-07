@@ -117,6 +117,8 @@ Klik Disini👉
 
 # Jangan Lupa Like Share Comment And Subscribe
 
+<h2 align="center">
+
 [![Youtube Km7ujuh](https://img.shields.io/badge/YouTubeKm7ujuh-200%2B-yellow.svg?style=flat)](https://www.youtube.com/@km7ujuh)
 
 
@@ -168,15 +170,16 @@ Klik Disini👉
 <h2 align="center">
 <img height=150 src="https://github-readme-stats.vercel.app/api/top-langs/?username=kiplymacho&layout=compact&theme=dark">
 <img height=150 src="https://github-readme-stats.vercel.app/api?username=kiplymacho&count_private=true&show_icons=true&theme=dark">
+ 
 <h2 align="center">
 
-# ~_Follow_~
+~_Follow_~
 
 [![Halaman Facebook](https://img.shields.io/badge/HalamanFacebook-200%2B-yellow.svg?style=flat)](https://www.facebook.com/httpcustomkiplymacho/)
 
 [![WhatsApp](https://img.shields.io/badge/WhatsApp-400%2B-yellow.svg?style=flat)](https://wa.me/6285751032225)
 
-# ~_Subscribe_~
+~_Subscribe_~
 
 [![YouTube](https://img.shields.io/badge/YouTube-200%2B-yellow.svg?style=flat)](https://www.youtube.com/@km7ujuh)
 
