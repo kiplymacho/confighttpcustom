@@ -37,7 +37,12 @@ Klik Dibawah Ini
 [![WhatsApp Channel](https://img.shields.io/badge/WhatsAppChannel-400%2B-yellow.svg?style=flat)](https://whatsapp.com/channel/0029VaaFkqtGU3BSf6gTnj2s)
 
 # Kumpulan Payload All Operator Untuk Internet Gratis:
-Klik Disini👉
+<h2 align="center">
+
+Klik Disini
+
+👇👇
+
 [![Payload](https://img.shields.io/badge/Payload-7%2B-yellow.svg?style=flat)](https://sfile.mobi/80aBinxFscu)
 
 # Kumpulan Config Unlock SSH
