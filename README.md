@@ -30,11 +30,6 @@ Klik Dibawah Ini
 👇👇
  
 [![Xhyper Tunnel Pro](https://img.shields.io/badge/XhyperTunnelPro-100-yellow.svg?style=flat)](https://sfile.mobi/7SMATlKVVem)
- 
-# Semua Config Ada Di Saluran WhatsApp Ini Jgn Lupa Follow:
-<h2 align="center">
- 
-[![WhatsApp Channel](https://img.shields.io/badge/WhatsAppChannel-400%2B-yellow.svg?style=flat)](https://whatsapp.com/channel/0029VaaFkqtGU3BSf6gTnj2s)
 
 # Kumpulan Payload All Operator Untuk Internet Gratis:
 <h2 align="center">
@@ -182,7 +177,7 @@ Klik Disini👉
 
 [![Halaman Facebook](https://img.shields.io/badge/HalamanFacebook-200%2B-yellow.svg?style=flat)](https://www.facebook.com/httpcustomkiplymacho/)
 
-[![WhatsApp](https://img.shields.io/badge/WhatsApp-400%2B-yellow.svg?style=flat)](https://wa.me/6285751032225)
+[![WhatsApp](https://img.shields.io/badge/WhatsApp-400%2B-yellow.svg?style=flat)](https://wa.me/6285182393001)
 
 ~_Subscribe_~
 
