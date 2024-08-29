@@ -21,7 +21,7 @@
 
 [![Android](https://img.shields.io/badge/Android-14-yellow.svg?style=flat)](https://developer.android.com/about/versions/14?hl=id)
 
-# Aplikasi Untuk Internetan Gratis Kartu Indosat 0p0k Unlimited Pilih Metode Ovpn
+# Aplikasi Untuk Internetan Gratis Kartu Telkomsel Byu 0p0k Unlimited Pilih Metode Udp Pro
 
 <h2 align="center">
 
@@ -146,7 +146,7 @@ Klik Disini👉
   
 [![Github KiplyMacho](https://img.shields.io/badge/GithubKiplyMacho-7%2B-yellow.svg?style=flat)](https://github.com/kiplymacho)
 
-[![Telegram](https://img.shields.io/badge/Telegram-77%2B-yellow.svg?style=flat)](http://t.me/kiplymacho)
+[![Telegram](https://img.shields.io/badge/Telegram-77%2B-yellow.svg?style=flat)](http://t.me/confighttpcustomkiplymacho)
   
 [![Linktr.ee](https://img.shields.io/badge/Linktr.ee-999%2B-yellow.svg?style=flat)](https://linktr.ee/kiplymacho)
   
