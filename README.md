@@ -134,7 +134,7 @@ Klik Disini👉
   
 [![Tiktok KiplyMacho](https://img.shields.io/badge/TiktokKiplyMacho-80%2B-yellow.svg?style=flat)](https://www.tiktok.com/@kiplymacho)
 
-[![Facebook KiplyMacho](https://img.shields.io/badge/FacebookKiplyMacho-199%2B-yellow.svg?style=flat)](https://www.facebook.com/kiplymachobanjar)
+[![Facebook KiplyMacho](https://img.shields.io/badge/FacebookKiplyMacho-199%2B-yellow.svg?style=flat)](https://www.facebook.com/g1g1n1n0)
 
 [![Halaman Facebook](https://img.shields.io/badge/HalamanFacebook-7K%2B-yellow.svg?style=flat)](https://www.facebook.com/httpcustomkiplymacho)
   
@@ -150,11 +150,9 @@ Klik Disini👉
   
 [![Linktr.ee](https://img.shields.io/badge/Linktr.ee-999%2B-yellow.svg?style=flat)](https://linktr.ee/kiplymacho)
   
-[![SnackVideo](https://img.shields.io/badge/SnackVideo-800%2B-yellow.svg?style=flat)](https://sck.io/f/Djdro91o)
+[![SnackVideo](https://img.shields.io/badge/SnackVideo-800%2B-yellow.svg?style=flat)](https://s.snackvideo.com/u/@giginino/8RrjkDD)
 
 [![OLX](https://img.shields.io/badge/OLX-7%2B-yellow.svg?style=flat)](https://www.olx.co.id/profile/116782022)
-
-[![SnackVideo](https://img.shields.io/badge/SnackVideo-800%2B-yellow.svg?style=flat)](https://www.snackvideo.com/@ananggonjeng2023)
 
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-80%2B-yellow.svg?style=flat)](http://www.linkedin.com/in/kiplymacho)
 
