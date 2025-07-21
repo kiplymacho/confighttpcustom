@@ -150,9 +150,7 @@ Klik Disini👉
   
 [![Linktr.ee](https://img.shields.io/badge/Linktr.ee-999%2B-yellow.svg?style=flat)](https://linktr.ee/kiplymacho)
   
-[![SnackVideo](https://img.shields.io/badge/SnackVideo-800%2B-yellow.svg?style=flat)](https://s.snackvideo.com/u/@giginino/8RrjkDD)
-
-[![OLX](https://img.shields.io/badge/OLX-7%2B-yellow.svg?style=flat)](https://www.olx.co.id/profile/116782022)
+[![SnackVideo](https://img.shields.io/badge/SnackVideo-800%2B-yellow.svg?style=flat)](https://sck.io/u/@giginino/M7jpGo4O)
 
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-80%2B-yellow.svg?style=flat)](http://www.linkedin.com/in/kiplymacho)
 
